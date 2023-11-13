@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BAfoSHO or BA (bad attitude) for short.
+- 👋 Hi, I’m @BAfoSHO or BA.
 - 👀 I’m interested in collecting cards and graduating college a decade late.
 - 🌱 I’m currently studying Comp Sci @ UIowa.
 - 💞️ I’m looking to collaborate on anything where I can learn and grow my skills.
