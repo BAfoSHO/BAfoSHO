@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @BAfoSHO or BA.
 - 👀 I’m interested in sports, video games, and collecting cards.
-- 🌱 I’m currently studying Computer Science student @ the University of Iowa.
 - 💞️ I’m looking to collaborate on anything where I can learn and grow my skills.
 - 📫 How to reach me \\ bafosho@gmail.com
 
